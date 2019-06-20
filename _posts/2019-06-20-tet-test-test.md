@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 title: 'tet test test '
 ---
 ## A New Post
