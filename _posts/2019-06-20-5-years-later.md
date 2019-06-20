@@ -5,7 +5,6 @@ title: 5 Years Later...
 subtitle: >-
   Well, we’re finally here fam. We did the damn thing, however long it took. I’m
   just proud to say that I’m officially done with undergrad.
-image: /img/F+if7seLQpew2n8HSlG8ng_thumb_24c3.jpg
 ---
 ## 5 Years Later...
 
