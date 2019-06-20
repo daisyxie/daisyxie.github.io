@@ -17,29 +17,24 @@ I started at the University of Washington in 2014 following the path I had chose
 That being said, I've learned a _lot_ throughout the years, and especially at all the conferences and networking events I went to during Spring quarter. I wanted to compile a tdlr; of some sorts on my biggest takeaways.
 
 **_Tim Salau_ at UWiB's Closing the Gap**
-Diversity is a virtue.Don’t let where you came from limit where you will go.Be more intentional about surrounding yourself with diverse communities, especially those that don’t look like you.
+Diversity is a virtue. Don’t let where you came from limit where you will go. Be more intentional about surrounding yourself with diverse communities, especially those that don’t look like you.
 
 **_Lucas Welch_ from Highspot** 
 The power of transparency and truth will lead to a positive long-term impact in reputation and collaboration.
 Learn to become a “full-stack” communicator. Conciseness (in communication) is value- it demonstrates maturity and confidence.
 
-Milli
-Work is often 80% great, and 20% not, but if you’re able to push past that 20%, you’ll grow and learn immensely
+**_Marla Jo_ from Milli Agency**
+Work is often 80% great, and 20% not, but if you’re able to push past that 20%, you’ll grow and learn immensely.
 
-Lisa Fain
-Always make a clear ask
-Clear is kind and unclear is unkind
-Stop apologizing
+**_Lisa Fain_, CEO of Center for Mentoring Excellence**
+Always make a clear ask. Clear is kind and unclear is unkind. Stop apologizing!
 
-Tama Smith
-Find a way
-“If something doesn’t bring you alive, it’s probably too small for you.” - Maya Angelou
-Leave a person better for meeting you
-Start saving EARLY
+**Tama Smith**
+_Find a way._ “If something doesn’t bring you alive, it’s probably too small for you.” - Maya Angelou
+Leave a person better for meeting you. Start saving EARLY
 
-at the Women In Tech Regatta
-You can only strain yourself until you can’t
-You don’t have to be a chameleon to succeed
+**_In Their Own Words: Stories of Underrepresented Voices in Tech" at the Women In Tech Regatta**
+You can only strain yourself until you can’t. You don’t have to be a chameleon to succeed.
 
 
 
