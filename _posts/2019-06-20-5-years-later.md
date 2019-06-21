@@ -34,7 +34,7 @@ Always make a clear ask. Clear is kind and unclear is unkind. Stop apologizing!
 _Find a way._ “If something doesn’t bring you alive, it’s probably too small for you.” - Maya Angelou.
 Leave a person better for meeting you. Start saving EARLY.
 
-**_Jessie Woolley-Wilson_, CEO of Dreambox Learning at the Future For Us Assembly**
+**_Jessie Woolley-Wilson_, CEO of Dreambox Learning at the Future For Us Assembly**-
 You are not defined by the chapters in your life because you are writing a novel. Each individual chapter is but a piece in the mosaic of our lives. By itself, it cannot define us as people or leaders. We shouldn’t regret any single chapter as we learn from setbacks on our journey. Focus on finishing your novel strong. It’s all about impact.
 
 
