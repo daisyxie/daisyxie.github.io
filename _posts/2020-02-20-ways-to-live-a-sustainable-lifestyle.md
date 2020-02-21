@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 title: Ways to Live A Sustainable Lifestyle
 ---
 Living in Califoria has nearly been a dream- the sunshine, the festivity, the proximity to my boo thang :) The move to California was surprisingly not that big of a change. The one thing that DID get to me though, was how much lower the standard of sustainability is compared to Seattle. Back home, there are so many different kinds of recycling bins available, it's almost frustrating LOL. People generally eat out less, drive more environmentally friendly cars, etc. Living in California has really made me more conscious of my consumption and what I can do to better the environment that I work, live, and coexist in. In my journey to finding a more sustainable lifestyle, I learned a lot about things I really should know already, so I thought I'd put together a quick guide.
