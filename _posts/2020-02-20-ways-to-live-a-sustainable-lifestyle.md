@@ -17,6 +17,7 @@ Day-to-Day:
 - Think before you buy - do you really need this? Can you find this at a consignment store/app? Do you already have something like it?
 - Repurpose old clothes - there are so many ways you can repurpose old clothes. Some examples:
 	- Reusable tote
+    - Scrunchie 
     - Pillow case
     - Pillow stuffing
     - Gift wrap
@@ -33,7 +34,6 @@ Bathroom
 - Menstral cup - I've been using menstral cups for a while now and they are INCREDIBLE. It definitely takes time to get used to, but once you do, it's so much less stress during the day and so eco-friendly. I got a [this two-pack](https://www.amazon.com/gp/product/B072BMCGNW/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1) from Amazon for $9. Only $9!!! If you think about how much money you spend on tampons/liners/pads and how much waste it creates, these cups are truly amazing.
 
 
-
 Laundry
 - Laundry dryer balls - Instead of buying dryer sheets, these balls do the same job AND they help detangle sheets and clothes. I got my 4-pack from Trader Joes and have been using one for months now and it's still in great condition.
 - Chemical free detergent from restock shop
@@ -44,10 +44,6 @@ Kitchen
 - Reusable containers
 - Produce bags
 - Compost bin
+- Beeswax Reusable Container Wraps
 
-
-- 
-
-
-
-
+I hope this was helpful in jumpstarting a more sustainable and environmental conscious lifestyle. It requires investing time and patience, but absolutely feel free to take it step by step. Once you've reached a level of comfort and rhythm, the next step is bringing your impact to the community! Get involved and volunteer at beach cleans, local environmentally conscious organizations, political initiatives, etc.! 
