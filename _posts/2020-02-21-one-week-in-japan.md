@@ -1,16 +1,17 @@
 ---
 layout: post
 published: true
-title: One Week in Japan
+title: A First Timer's Guide to Japan
 ---
-# A Quick Guide to Travelling Around Japan
+# A Quick Guide to Traveling Around Japan
 
 
-I'm a hardcore planner when it comes to traveling. I like to do my research to make sure I get to see everything I want to see in an affordable, safe, and efficient way. A couple of my friends have asked for recommendations, so I figured I'd just put together a guide for others to use :)
+I'm a hardcore planner when it comes to traveling. I like to do my research to make sure I get to see everything I want to see in an affordable, safe, and efficient way. A couple of my friends have asked for recommendations, so I figured I'd just put together a guide for others to use! For our first time in Japan, we went to Tokyo, Honshu (Mt.Fujii), Kyoto, and Osaka.
 
 ## Where To Stay
-I recommend Shinjuku, Shibuya, or anywhere around Chiyoda City. Shinjuku and Shibuya are on the more expensive end, but they're close to major shopping areas full of shops, gaming centers, and food. Chiyoda is like a city center, so it's easier to get to places, and AirBnBs are more affordable and spacious. 
+For Tokyo, I recommend Shinjuku, Shibuya, or anywhere around Chiyoda City. Shinjuku and Shibuya are on the more expensive end, but they're close to major shopping areas full of shops, gaming centers, and food. Chiyoda is like a city center, so it's easier to get to places, and AirBnBs are more affordable and spacious. 
 ![LRG_DSC00989.JPG]({{site.baseurl}}/img/LRG_DSC00989.JPG)
+The other cities are relatively small and more centralized, so I'd just recommend finding a place near the city center or where most of the attractions are!
 
 
 ## Getting Around the City
@@ -145,11 +146,3 @@ Ikeda
 
 
 I might've missed some notes, but please feel free to reach out if you have any questions! I looooved Japan and can't wait to get back!
-
-
-
-
-
-
-
-
