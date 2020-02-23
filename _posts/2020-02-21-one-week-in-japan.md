@@ -32,6 +32,7 @@ TOKYO
 - Tsujiki Fish Market- no longer a fish auction in the morning, but still worth visiting for excellent seafood!
 - Toyosu Market is where you can view fish auctions now!
 - Kit Kat Chocolatery and Cafe - make your own kit kat flavor
+- teamLab Digital Art Museum - super popular, but a lil pricey and line is long
 
 **Jinbocho Region**
 - Book town, over 10M books in this area
@@ -46,6 +47,14 @@ TOKYO
 - Ryōgoku Kokugikan Sumo wrestling
 - Japanese Sword Museum
 - Lots of gardens
+
+**Ueno**
+- Tokyo National Museum
+
+**Taito City**
+- Senso-ji temple ** SUPER popular, lots of souvenir shops and good food
+- Asakusa area
+
 
 2. Shopping Region
 **Shinjuku**
@@ -64,6 +73,13 @@ TOKYO
 - Sakura Tei - DIY okonomiyaki 
 - 15-20 minute walk to Harajuku area too 
 - In Harajuku, theres a cute hipster shop street call Cat Street I think
+
+**Kichijoji**
+- Studio Ghibli Museum - *be aware that you have reserve tickets far in advance :( I didn't get a chance to get tickets this time around unfortunately.*
+- Find Simon & Martina from Eat Your Sushi :)
+
+**Shimo-kitazawa**
+This is such a HIDDEN TREASURE. This area is full of vintage "thrifted" clothes. I airquote because they are pricey af. But regardless, the area is full of these hipster, artsy vibes. Music is also huge here, so there are a ton of record stores and instrument shops. Also tons of hidden bars, restaurants, puppy cafes, everything you could want and it's so lowkey!! 
 
 ** Super popular
 
@@ -87,22 +103,11 @@ Nishiki Market - huuuuge marketplace in downtown with lots of street foods, souv
 Kyoto is known for these foods: fresh tofu, okonomiyaki, vegetarian food (look up buddhist vegetarian food- there are a couple temples that sell it!), matcha, and takoyaki.
 
 
-
-
 We also took a day trip to Lake Kawaguchi, which is at the foot of Mt. Fuji and spent a day+night there. It was suuuper relaxing- we biked around the lake, bathed in an onsen, and stayed in a traditional Japanese house. That was also really easy- we just took the bus from the Shibuya Bus Station.
 
 
 
-Ueno
 
-Tokyo National Museum
-
-Taito City
-
-Senso-ji temple ** SUPER popular, lots of souvenir shops and good food
-
-
-teamLab Digital Art Museum - super popular, but a lil pricey and line is long
 
 
 
