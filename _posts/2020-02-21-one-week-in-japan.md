@@ -3,9 +3,6 @@ layout: post
 published: true
 title: A First Timer's Guide to Japan
 ---
-# A Quick Guide to Traveling Around Japan
-
-
 I'm a hardcore planner when it comes to traveling. I like to do my research to make sure I get to see everything I want to see in an affordable, safe, and efficient way. A couple of my friends have asked for recommendations, so I figured I'd just put together a guide for others to use! For our first time in Japan, we went to Tokyo, Honshu (Mt.Fujii), Kyoto, and Osaka.
 
 ## Where To Stay
