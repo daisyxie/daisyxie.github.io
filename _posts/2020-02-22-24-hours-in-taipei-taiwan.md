@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 title: '24 Hours in Taipei, Taiwan'
 ---
 This past summer, my friend and I somehow managed to plan our flights back to the states so that we'd have a 24 hour layover in Taipei. Taiwan wasn't on our East Asia itinerary, but we figured if the flights worked out, why take a free-ish trip? So we flew out of Osaka at 10PM and landed in Taipei at midnight. Our flight from Taipei to Seattle was the next day at 11:40PM, so thus began an interesting 24 hours...
