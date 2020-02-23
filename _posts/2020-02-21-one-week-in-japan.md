@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 title: One Week in Japan
 ---
 # A Quick Guide to Travelling Around Japan
