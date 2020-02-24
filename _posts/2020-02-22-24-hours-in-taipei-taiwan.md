@@ -37,7 +37,7 @@ One of the most interesting things about temples in Taipei City were that many o
 
 Sooo there you go! 24 hours in Taipei. After visiting for just the day, I cannot WAIT to go back. I loved the food, people, and culture. That being said, there are many places we didn't get a chance to see. I've listed them below in case you'd lke to include those in your itinerary :)
 
-Taipei 101 
+Taipei 101  
 National Museum of History  
 Night Markets  
 - Raohe Night Market
