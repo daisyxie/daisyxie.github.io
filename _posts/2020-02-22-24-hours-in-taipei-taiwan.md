@@ -39,8 +39,4 @@ Sooo there you go! 24 hours in Taipei. After visiting for just the day, I cannot
 
 Taipei 101  
 National Museum of History  
-Night Markets  
-- Raohe Night Market
-- Ningxia Night Market
-- Tonghua Night Market
-- Huaxi Night Market/red light district
+Night Markets (Raohe, Ningxia, Tonghua, Huaxi [redlight district])
